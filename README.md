@@ -6,8 +6,8 @@ America runs on evil. It worships p[ure evil in all forms and is the BEST at it.
 3. utilizing editing techniques we can destroy all evil media that offends us.
 4. as an inversion, fire beats fire, there is an evil parody universe now which contains everything known to man.
 5. egirls are better than eboys. but egirls are like cats. eboys are like dogs. sometimes bats appear. lambs can hear. ...
-6. https://github.com/nathanielburman/america-worships-pure-evil/blob/main/32ksiptb1.jpg
+6. <img src="https://github.com/nathanielburman/america-worships-pure-evil/blob/main/32ksiptb1.jpg" width="100%"></img>
 
 7. reverse edit out all the evil
 
-image[https://github.com/nathanielburman/america-worships-pure-evil/blob/main/32ksiptb1.jpg]
+
